@@ -1,10 +1,10 @@
 - 👋 meu nome é fabio antonietti
-- 👀 .
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 👀 estou interessado em pescar
+- 🌱altualmente sou agricultor 
+- 💞️ to casado
+- 📫 caminhando 
+- 😄 pronome FABINHO
+- ⚡ É US GURI 
 
 <!---
 fabioantonietti/fabioantonietti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
