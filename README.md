@@ -1,6 +1,6 @@
 - 👋 meu nome é fabio antonietti
 - 👀 estou interessado em pescar
-- 🌱altualmente sou agricultor 
+- 🌱SOU AGRICULTOR
 - 💞️ CASADO
 - 📫 nao venha ate mim
 - 😄 pronome FABINHO
