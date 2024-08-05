@@ -1,7 +1,7 @@
-- 👋 meu nome é fabio antonietti
+- 👋 meu nome é fabio antonietti 🇧🇷🇧🇷😼
 - 👀 estou interessado em pescar
 - 🌱SOU AGRICULTOR
-- 💞️ CASADO
+- 💞️ CASADO💟
 - 📫 nao venha ate mim
 - 😄 pronome FABINHO
 - ⚡
