@@ -2,7 +2,7 @@
 - 👀 estou interessado em pescar
 - 🌱altualmente sou agricultor 
 - 💞️ CASADO
-- 📫 caminhando 
+- 📫 nao venha ate mim
 - 😄 pronome FABINHO
 - ⚡
 
